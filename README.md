@@ -1,0 +1,4 @@
+- 👋 Hi, I’m @smalcerizab
+- 👀 I’m interested in crypto & marketing
+- 🌱 I’m currently learning PHP
+- 😄 Pronouns: boss
